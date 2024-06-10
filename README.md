@@ -8,7 +8,7 @@ Você pode entrar em contato comigo nas minhas redes sociais! 📫
 
 instagram, X/twitter e discord:
 
-@__batata_joga__
+@_ batata_joga _
 
 @BatataOffic4al
 
