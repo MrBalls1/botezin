@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil ☝️🤓
 
-Meu nome é *botezin jasinto pinto*😋
+Meu nome é **botezin jasinto pinto** 😋
 
 Estou estudando na Alura
 Estou me desenvolvendo na linguagem JavaScript
